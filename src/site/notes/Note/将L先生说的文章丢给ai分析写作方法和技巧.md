@@ -23,4 +23,3 @@
 ---
 总结：确实厉害。要善用AI
 
-https://www.bilibili.com/video/BV1pgmbY1EXX/?spm_id_from=333.1391.0.0&vd_source=4324157828f9e6365bb6309a63a5e222
